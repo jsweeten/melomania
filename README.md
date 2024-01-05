@@ -1,1 +1,1 @@
-### Groove Grove is an online community centered around sharing and discussing musical artists, albums, and news!
+### Melomania is a digital library for your physical album collection that allows you to catalog, search, and sort your music!
